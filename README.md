@@ -1,5 +1,6 @@
 # ارسال کد
-![Uploading telegram & twitter-01.jpg…]()
+![telegram   twitter-01](https://user-images.githubusercontent.com/94538977/142750899-3f14c82a-57d3-40cc-9a34-98a3a81d4354.jpg)
+
 
 زمان ارسال کدهای فیسکاپ آغاز شد!
 
